@@ -1,1 +1,1 @@
-# randomgitub.github.io
+# randomgithub.github.io
